@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil :thaemevi90
+### Boas vindas ao meu perfil :thaemevi90❤️
 
 Meu nome é Thaeme Vitoria
 
@@ -6,11 +6,5 @@ Meu nome é Thaeme Vitoria
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### Você pode entrar em contato comigo :mailbox
-
-paludettomarcelo@gmail.com
-
-@marcelopaludetto
-
-![descrição do GIF](link GIF do Tenor)
+(https://media1.tenor.com/m/opEBWw0uddoAAAAC/umm.gif)
 
